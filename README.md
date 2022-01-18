@@ -1,1 +1,1 @@
-# swissnft
+# Swiss NFT
